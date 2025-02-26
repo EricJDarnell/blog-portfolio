@@ -1,0 +1,1 @@
+Beginning a new blog/portfolio site, and you know, having some fun with it.
